@@ -1,4 +1,4 @@
-## I'm a Husband, Father, Developer, and Teacher!!
+## I'm a Husband, Father, Developer, and Teacher!
 
 - 👋 Hi, I’m @fire9
 - 👀 I’m interested in traveling and photography
